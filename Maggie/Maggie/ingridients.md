@@ -1,0 +1,1 @@
+For this recipe all you need is maggie packets which come with maggie masala. 
